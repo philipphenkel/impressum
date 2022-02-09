@@ -1,4 +1,4 @@
-Impressum / Legal information
+Impressum / Legal Information
 =============================
 
 Hier finden Sie die nach deutschem Recht erforderlichen [rechtlichen
