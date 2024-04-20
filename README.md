@@ -15,7 +15,7 @@ Philipp Henkel
 c/o autorenglück.de<br>
 Franz-Mehring-Str. 15<br>
 01237 Dresden<br>
-Telefon +4917698846613<br>
+Telefon +4972439469898<br>
 E-mail: info@audiobookcutter.de<br>  
 
 ## Haftungsausschluss - Disclaimer
